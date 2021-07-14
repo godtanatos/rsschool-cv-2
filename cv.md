@@ -11,6 +11,7 @@ ___
 ##### Education
 2007 – May 2011
 Belarusian agricultural academy of Economics and enterprise management  
+
 ___
 ##### Work Experience
 August 2011-April 2014
